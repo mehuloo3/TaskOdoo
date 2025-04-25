@@ -1,1 +1,1 @@
-I solved the 7 problem out of 10
+I solved the 6 problem out of 10
